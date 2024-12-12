@@ -1,4 +1,7 @@
-## О себе   
+## О себе 
+
+![photo_paasport](https://github.com/user-attachments/assets/42921bbf-7a78-4263-908c-d2dc2453e20d)  
+
 
 **имя:** Анна 
 
